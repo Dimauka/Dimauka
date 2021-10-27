@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Dimauka
+- 👀 I’m interested in learning Web Development
+- 🌱 I’m currently learning HTML, CSS, Python and JavaScript
+- 📫 How to reach me > d.dyachuk1406@gmail.com
+- 🚀I am open to ANYTHING
